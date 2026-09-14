@@ -1,4 +1,4 @@
-# Doryan evrard / Dodolko
+# Doryan aka. **Dodolko**
 
 <img width="2560" height="2560" alt="Visuals of the " src="https://github.com/user-attachments/assets/d2ea07fd-b625-496b-b23c-14eae554e6a7" />
 
